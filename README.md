@@ -4,4 +4,4 @@
 - To help provent this from happening like it has in the past I'd even go as far as to help you make a skin if you'd like with aspects of what you like from my skin*s* /srs
 
 
-- for my abt me stuff, click the strawpage link!!
+- (strawpage is being edited
